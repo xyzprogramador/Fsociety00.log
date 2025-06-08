@@ -1,0 +1,2 @@
+# Fsociety00.log
+O MELHOR PAINEL PARA PUXAR DADOS 
